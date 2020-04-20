@@ -1,1 +1,1 @@
-Dit is een nammak van het spel Patchwork.
+Dit is een namaak van het spel Patchwork.
